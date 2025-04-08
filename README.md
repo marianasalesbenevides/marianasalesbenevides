@@ -7,5 +7,5 @@
 📝 Crio conteúdo sobre comunicação, tecnologia e comunidade no [LinkedIn](https://www.linkedin.com/in/mariana-sales/).
 
 ⚡ Fun fact: 
-  - trabalho com comunidades de tecnologia e educação quase quatro anos.
+  - trabalho com comunidades de tecnologia e educação há quatro anos.
   - Tenho três livros publicados!
